@@ -1,2 +1,3 @@
-# game1
-the game of life
+# yeet boi  
+**BOIZ** 
+*YEET MAISTRO*
